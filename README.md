@@ -1,3 +1,1 @@
-
-
-\ ゜o゜)ノ
+Coming soon
